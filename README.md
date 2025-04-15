@@ -1,0 +1,1 @@
+# e-cr-ditoValidador-de-cart-o-de-cr-dito-e-identificador-de-marca
